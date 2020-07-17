@@ -1,4 +1,4 @@
-
+### Hey There Thiva Here! 👋
 
 - 🔭 I’m currently open for new Opportunities
 - 🎓 I just graduated from College!
