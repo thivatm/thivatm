@@ -1,7 +1,7 @@
 ### Hey There Thiva Here! 👋
 
-- 🔭 I’m currently open for new Opportunities
-- 🎓 Just graduated from College!
+- 🔭 Always fuled by my passion
+- 🤖 Learning AI 
 - 💬 Let's Talk Dev @thiva_mahen (Twitter)
 - 📫 How to reach me: thivagartm@gmail.com
-- ⚡ Fun fact: I am a funny guy!
+- ⚡ Fun fact: 404!
